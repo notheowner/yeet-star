@@ -1,0 +1,184 @@
+# Song List
+
+- 10:35 (crystal rock remix) NXC'd
+- 𝟣𝟥𝟣𝟦
+- 🖤 4get - bleed (frenchcore)
+- 59
+- 911
+- Acreage - Essence (beansclub VIP)
+- ADORE
+- Affected - What are you waiting for [nxc]
+- AGONY & 4GET - Loving You Is Suicide
+- agony & 4get - selfish (frenchcore)
+- AGONY, Flerian & Lieless - In Your Head (Official Music Video)
+- AGONY & kyoto - Capable of Murder (AMV)
+- alexandra stan - get back asap (beansclub bootleg)
+- Alive
+- ALL I WANTED WAS YOU
+- angu - all around me (frenchcore)
+- ANGUISH, Lieless – the days
+- ANIZYZ x vxcelm - Cold [Official AMV] [Solo Leveling]
+- anubasu-anubasu - LET'S GET [NXC] [VISUAL BY DNA]
+- anywhere
+- Apexx - I Go Insane [NXC]
+- Artemas - i like the way you kiss me (ANGUISH x ily bootleg)
+- astrosex
+- A-Wak - Helpless (kogJAM Remaster & Edit)
+- back to how we were (feat. enable secret)
+- BAD AND BOUJEE
+- balancebreaker - crossed the line (frenchcore)
+- beansclub - again (visualiser by autumnspectacle)
+- beansclub - જ⁀➴ᡣ𐭩 superstar4k! ૮꒰ ྀི ⸝⸝⸝ ྀི꒱ა
+- beantrance1
+- BEAUTIFUL GIRLS
+- [Billie Eilish - No Time To Die (Genetic Hardstyle Bootleg) \[NXC\]](https://www.youtube.com/watch?v=gh4aDxlTylA)
+- bljeta - la da die (frenchcore)
+- Bonnie & Clyde
+- breathe..
+- BURDEN
+- can't tame her
+- CARAMELLDANSEN (Aoki Hardstyle)
+- Careless Whisper (Hardstyle)
+- ✯cenobia✯ - ✯stars✯ (beansclub VIP)
+- [Changes](https://www.youtube.com/watch?v=NTp77JN_RmQ)
+- Charli xcx - girl, so confusing featuring lorde (Gravagerz remix)
+- CHEMICALS
+- CINEMA
+- circus
+- cold - when the night comes (frenchcore)
+- 𝑪𝒐𝒎𝒆, 𝒃𝒓𝒆𝒂𝒌 𝒎𝒆 𝒅𝒐𝒘𝒏
+- Come Get Away ♡
+- CRASH AND BURN
+- Darling In The Franxx - KISS OF DEATH (Alzion Bootleg) (Hardstyle)
+- DEEZL - AEON [NXC]
+- dipper - kill me slow (techno)
+- DONT STOP THE MUSIC
+- 𝗗𝘂𝘀𝗸 𝘁𝗶𝗹𝗹 𝗗𝗮𝘄𝗻
+- enable secret, AITANA★★OFICIAL - HEARTBEAT
+- FEEL IT STILL
+- fell for you
+- Flerian & AGONY - Die In My Sleep [AMV]
+- flerian - so far so fake (hardstyle)
+- Flowers (Hardstyle)
+- FORGET YOU
+- G0b4cK - sign offline X lil BaeBlade
+- Gareth Emery - Youll Be OK Ft. Annabel [Phunk D Edit]
+- good 4 u
+- Gracie Abrams - I miss you, I’m sorry (hardtekk remix)
+- griffnjoz hook line n sinker
+- gustav - secret love my escape ★
+- Halsey - Without Me | angst Bootleg
+- Hear Me Now
+- hellwalker
+- Hero
+- hideaway
+- 𝖍𝖎𝖙 𝖒𝖞 𝖍𝖊𝖆𝖗𝖙 🤍
+- Hurt Me More
+- I don't want to live forever (W Tekk Remix)
+- in and out of love
+- inoqx - decode (frenchcore)
+- inoqx - Fading Echoes
+- Inoqx & molly - SHARP AND COLD (Official Video)
+- 𝑰 𝑾𝑨𝑻𝑪𝑯 𝑻𝑯𝑬 𝑴𝑶𝑶𝑵
+- I Will Never Cry Again
+- I Woudn't Mind It (Frenchcore)
+- just somebody i used to know
+- KNIFE UNDER MY PILLOW
+- la la la la la
+- Levenkhan - Save That Shit
+- Lieb mich ft. Hexia
+- Lieless - Addicted
+- Lieless - I Cant Say No
+- life in her yet
+- Lily Rose Depp - World Class Sinner _ I'm A Freak (SoFTT Edit)
+- Living Life, In The Night
+- LONELY LONELY
+- lost myself in you (frenchcore)
+- LOVELY NIGHTCORE HARDSTYLE SPED UP
+- Luuna & Lieless & Yarimov - Children
+- Lysard - Nobody New
+- ʟɪɢʜᴛɴɪɴɢ
+- Mad Luv
+- matya - spinning endlessly (frenchcore)
+- Megan Thee Stallion & Dua Lipa - Sweetest Pie (Raskal Bootleg)
+- 𝓜𝓮𝓶𝓸𝓻𝓲𝓮𝓼 💙
+- Metrik - We Got It (BalanceBreaker Frenchcore Remix)
+- Molly, Lieless & Spooky - Won't Stop Turning
+- mollywater x kyoto - prisoner
+- monsoon - tokio hotel psychomandstrance cover by KEL
+- moretekk - black widow (frenchcore)
+- moth to a flame
+- ♡
+- 🇱🇴🇻🇪🇸🇮🇨🇰 🇬🇮🇷🇱🇸
+- 💔
+- 🦋
+- Mqx - Get Away (ft. ilysmoke) (Extended Mix)
+- murder on my mind
+- MYST - Find You [NXC]
+- NÃO FOSSE TÃO TARDE (FRENCHCORE)
+- never4ever
+- NEVERMORE
+- Nexeri, RIELL - Crown (Nalestar Remix) [NXC]
+- November Skies (Vlado x Richy George Remix) [NXC]
+- oblivios - alone (frenchcore)
+- oblivios - need (frenchcore)
+- Omoi - Teo (Frenchcore bootleg)
+- on a night like this
+- Only One
+- Porter Robinson - Everything Goes On (Jomarijan Hardstyle Remix)
+- RED
+- reffect - DESOLATE [Frenchcore]
+- reload
+- RETTUNGSMISSION
+- Running in the Night
+- Running With The Wolves
+- SATELLITE
+- SAVING LIGHT
+- senua - nothing to me (frenchcore)
+- senua - slowly killing me (frenchcore)
+- Senua - Upside Down
+- 𝒮𝐸𝒳
+- Shadows
+- SHAKE YOUR BODY🐀
+- SHE KNOWS IT | ft. xn88ax
+- Silence
+- SK1N
+- Soap
+- 𝔖𝔓ℑℜℑ𝔗 𝔒𝔉 𝔏ℑ𝔈
+- spookybtw - Ohne Liebe [HardTekk]
+- Stay Away
+- Stay
+- STITCHES
+- Stolen Dance
+- swedish house mafia - heaven takes you home (beansclub bootleg)
+- Sweet
+- sweetsuicide
+- take my hand and break my heart
+- Taylor Swift - Style (Gravagerz REMIX)
+- Taylor Swift - The Fate of Ophelia (Gravagerz remix)
+- tears don't fall
+- the girl that time forgot
+- 𝘛𝘏𝘌 𝘖𝘕𝘓𝘠
+- The Weeknd - Blinding Lights (Hardstyle)
+- Through suffering they come to love me. Every. Single. One.
+- till we fade
+- UNBROKEN (Frenchcore)
+- unconscious - do u think... (frenchcore)
+- untouched
+- 𝒰𝒮𝐸𝒟 𝒱𝟤
+- u werent here i really miss you
+- WAKEMEUPINSIDE
+- WANT2FEELURLUV
+- We could do it if we tried
+- We live in cities
+- what if i escape with you?
+- Words I Never Said
+- ᴡʜᴇʀᴇ ᴡᴇ ꜱᴛᴀʀᴛᴇᴅ
+- xn88ax - youjustwantattention (frenchcore)
+- xn88ax & yuki - paranoid (frenchcore)
+- yuma. & LissA - mean to me [NXC]
+- za każdym razem | sped up
+- ZYZZ | Mqx - One More Time (ft. ilysmoke)
+- билборды - кома (BalanceBreaker's FRENCHCORE Remix)
+- Пепел
+- ПРОЩАНИЕ
