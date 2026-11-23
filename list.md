@@ -1,6 +1,6 @@
 # Song List
 
-- 10:35 (crystal rock remix) NXC'd
+- [10:35 (crystal rock remix) NXC'd](https://www.youtube.com/watch?v=xkKdzeqX1EQ)
 - 𝟣𝟥𝟣𝟦
 - 🖤 4get - bleed (frenchcore)
 - 59
