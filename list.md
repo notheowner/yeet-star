@@ -1,22 +1,22 @@
 # Song List
 
 - [10:35 (crystal rock remix) NXC'd](https://www.youtube.com/watch?v=xkKdzeqX1EQ)
-- 𝟣𝟥𝟣𝟦
-- 🖤 4get - bleed (frenchcore)
+- [𝟣𝟥𝟣𝟦](https://www.youtube.com/watch?v=8eWaqclepmE)
+- [🖤 4get - bleed (frenchcore)](https://www.youtube.com/watch?v=r8UQ_pqNMy4)
 - 59
-- 911
-- Acreage - Essence (beansclub VIP)
-- ADORE
-- Affected - What are you waiting for [nxc]
-- AGONY & 4GET - Loving You Is Suicide
-- agony & 4get - selfish (frenchcore)
-- AGONY, Flerian & Lieless - In Your Head (Official Music Video)
-- AGONY & kyoto - Capable of Murder (AMV)
-- alexandra stan - get back asap (beansclub bootleg)
-- Alive
-- ALL I WANTED WAS YOU
-- angu - all around me (frenchcore)
-- ANGUISH, Lieless – the days
+- [911](https://www.youtube.com/watch?v=EcdvLeYxaU4)
+- [Acreage - Essence (beansclub VIP)](https://www.youtube.com/watch?v=O6GgYzslseA)
+- [ADORE](https://www.youtube.com/watch?v=INFfQNfp7Ls)
+- [Affected - What are you waiting for [nxc]](https://www.youtube.com/watch?v=6VDOmscOApw)
+- [AGONY & 4GET - Loving You Is Suicide](https://www.youtube.com/watch?v=xqTV7U8NTVs)
+- [agony & 4get - selfish (frenchcore)](https://www.youtube.com/watch?v=bfRNOG4WWwc)
+- [AGONY, Flerian & Lieless - In Your Head (Official Music Video)](https://www.youtube.com/watch?v=cwPyoOo5Pug)
+- [AGONY & kyoto - Capable of Murder (AMV)](https://www.youtube.com/watch?v=KgwEpfSQwec)
+- [alexandra stan - get back asap (beansclub bootleg)](https://www.youtube.com/watch?v=qVNwMtDBTPI)
+- [Alive](https://www.youtube.com/watch?v=0LZBXcCH9xI)
+- [ALL I WANTED WAS YOU](https://www.youtube.com/watch?v=urotUMyI6Ds)
+- [angu - all around me (frenchcore)](https://www.youtube.com/watch?v=MqoO_ZPK1eo)
+- [ANGUISH, Lieless – the days](https://www.youtube.com/watch?v=vg3zdLoElsc)
 - ANIZYZ x vxcelm - Cold [Official AMV] [Solo Leveling]
 - anubasu-anubasu - LET'S GET [NXC] [VISUAL BY DNA]
 - anywhere
